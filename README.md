@@ -3,6 +3,7 @@
 - i use she/they. its okay if ya accidentally use other pronouns, but i'll gently correct you
 - yes i speak vietnamese and learning eng + german soo feel free to use those around me, but please be patient! im still learning it T_T
 - im an artist also a studio builder i guess (dm me on discord @axxiqi or facebook /prvstt for commission , samples)
+- im under 16 btw
 ### ok boundaries
 -  im REAALLYYY CHILL with casual speech like using “mày/tao” or similar vibes ><
 -  i usually block/unfriend anyone if i feel unsafe... . i dont owe anyone an explanation for curating my space
