@@ -5,7 +5,7 @@
 - im an artist also a studio builder i guess (dm me on discord @axxiqi or facebook /prvstt for commission , samples)
 - <16 ( which means im still a minor ): )
 ### ignore this please stop asking me about this
-- yes i use preMID to have that rich discord status ( its a extensions so dw about viruses or smth that can harm ur computer )
+- yes i use preMID to have that rich discord status ( its an extensions so dw about viruses or smth that can harm ur computer )
 - just use BetterDiscord to make animated status ( you can ask me for scripts and tutorials or just head on youtube / heres [the link to download](https://betterdiscord.app/) and [tutorial](https://www.youtube.com/watch?v=6krUNTXpKKY&t=32s&pp=ygUXZGlzY29yZCBhbmltYXRlZCBzdGF0dXM%3D)
 ### ok boundaries
 -  im really chill with casual speech like using “mày/tao” or similar vibes ><
