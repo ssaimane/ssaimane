@@ -18,6 +18,12 @@
 1. Roblox ( especially Arsenal, Entry Point, Regretevator ( i dont draw 'em much sorry ) and much more... i cant list em all ( just have a look on my mutual servers in my discord acc and you'll know)
 2. idk F1, Storm Chaser and else hello
 - *( i also into roblox CC but im gatekeeping. sorry not sorry. )*
+### dni list
+- mentioning about hoyoverse games ( especially ZZZ )
+- support VNCH
+- real-life pedo groomer
+- homophobic, transphobic
+- racist or just a general creep.
 ### for ponytown players howdy!
 - i mostly online on Roblox area ( vietnamese #1 and safe server )
 - feel free to c+h or talk to me :3c but im not good at communication so we can talk back and forth or smth idk...
