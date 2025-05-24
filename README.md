@@ -19,7 +19,7 @@
 2. idk F1, Storm Chaser and else hello
 - *( i also into roblox CC but im gatekeeping. sorry not sorry. )*
 ### dni list
-- mentioning about hoyoverse games ( especially ZZZ )
+- talk about hoyoverse games ( especially ZZZ please can you just sybau already ? )
 - support VNCH
 - real-life pedo groomer
 - homophobic, transphobic
