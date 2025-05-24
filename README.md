@@ -1,4 +1,4 @@
-[guns.lol](https://guns.lol/dkj)᲼᲼᲼.᲼᲼᲼[socials](https://linktr.ee/renicht)᲼᲼᲼.᲼᲼᲼most active discord server you can find me there! -> [/phonguoiviet](https://discord.gg/phonguoiviet)
+[socials](https://guns.lol/dkj)᲼᲼᲼.᲼᲼᲼[my playlists](https://linktr.ee/renicht)᲼᲼᲼.᲼᲼᲼most active discord server you can find me there! -> [/phonguoiviet](https://discord.gg/phonguoiviet)
 
 
 ### about me i guess
