@@ -4,6 +4,9 @@
 - yes i speak vietnamese and learning eng + german soo feel free to use those around me, but please be patient! im still learning it T_T
 - im an artist also a studio builder i guess (dm me on discord @axxiqi or facebook /prvstt for commission , samples)
 - <16 ( which means im still a minor ): )
+### ignore this please stop asking me about this
+- yes i use preMID to have that rich discord status ( its a extensions so dw about viruses or smth that can harm ur computer )
+- just use BetterDiscord to make animated status ( you can ask me for scripts and tutorials or just head on youtube / heres [the link to download](https://betterdiscord.app/) and [tutorial](https://www.youtube.com/watch?v=6krUNTXpKKY&t=32s&pp=ygUXZGlzY29yZCBhbmltYXRlZCBzdGF0dXM%3D)
 ### ok boundaries
 -  im really chill with casual speech like using “mày/tao” or similar vibes ><
 -  i usually block/unfriend anyone if i feel unsafe... . i dont owe anyone an explanation for curating my space
@@ -22,4 +25,5 @@
 ### links you can ignore this bye
 [my guns.lol socials whatever](https://guns.lol/dkj) / [my playlists><](https://linktr.ee/renicht) / most active discord server you can find me there! -> [/phonguoiviet](https://discord.gg/phonguoiviet)
 
+  
 thanks for reading ts lmao
