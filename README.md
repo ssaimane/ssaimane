@@ -1,3 +1,6 @@
+[guns.lol](https://guns.lol/dkj)᲼᲼᲼.᲼᲼᲼[socials](https://linktr.ee/renicht)᲼᲼᲼.᲼᲼᲼most active discord server you can find me there! -> [/phonguoiviet](https://discord.gg/phonguoiviet)
+
+
 ### about me i guess
 - just call me whatever you want, especially with nicknames!!!! but i prefer **aciqi, an and sai**. Also, avoid using my old nicknames unless we're mooties<3
 - i use she/they but its okay if ya accidentally use other pronouns, but i'll gently correct you
@@ -22,8 +25,6 @@
 ### ignore this please stop asking me about this
 - yes i use preMID to have that rich discord status ( its an extensions so dw about viruses or smth that can harm ur computer )
 - just use BetterDiscord to make animated status ( you can ask me for scripts and tutorials or just head on youtube / heres [the link to download](https://betterdiscord.app/) and [tutorial](https://www.youtube.com/watch?v=6krUNTXpKKY&t=32s&pp=ygUXZGlzY29yZCBhbmltYXRlZCBzdGF0dXM%3D)
-### links you can skip this bye
-[my guns.lol socials whatever](https://guns.lol/dkj) / [my playlists><](https://linktr.ee/renicht) / most active discord server you can find me there! -> [/phonguoiviet](https://discord.gg/phonguoiviet)
 
-  
+   
 thanks for reading ts lmao
