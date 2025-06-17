@@ -18,7 +18,7 @@
 ### uhh fandom 
 - rn im into :
 1. Roblox :
- - Arsenal, TC2, Entry Point, DvN ( fanmake cũng có ), Regretevator, The Butchery, May Madness, TDS, Tower Blitz . đ nhớ hết nên bổ sung sau
+ - Arsenal, TC2, Entry Point, DvN ( fanmake aswell ), Regretevator, The Butchery, May Madness, TDS, Tower Blitz annndd much more,,,
  - Roblox hacker ( not 4saken btw</3 ), myth
  - Jazzmir, Rochas313, cubeINC, robloxdude_993 fan:3
 2. Bonnies Bakery
