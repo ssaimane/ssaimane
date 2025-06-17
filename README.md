@@ -1,4 +1,4 @@
-[guns.lol](https://guns.lol)　﹒ 　[ata](https://nle.atabook.org)
+　　　　　　　　　　　　　　　　　　　　　　　　　　[guns.lol](https://guns.lol)　﹒ 　[ata](https://nle.atabook.org)
 
 
 ### about me i guess
