@@ -1,4 +1,4 @@
-[socials](https://guns.lol/dkj)᲼᲼᲼.᲼᲼᲼[my playlists](https://linktr.ee/renicht)᲼᲼᲼.᲼᲼᲼comm open soon
+[guns.lol](https://guns.lol)　﹒ 　[ata](https://nle.atabook.org)
 
 
 ### about me i guess
