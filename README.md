@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　　　　　　　　　　　[guns.lol](https://guns.lol/dkj)　﹒ 　[ata](https://nle.atabook.org)
+　　　　　　　　　　　　　　　　　　　　　　　　[guns.lol](https://guns.lol/dkj)　﹒ 　[ata](https://nle.atabook.org)　﹒ 　[strawpage](https://1nferno.straw.page)
 
 <p align="center">
 feel free to c+h, int and friend reqs! - but please w2i w/ me i mostly offtab or away from keyboard ;-(
