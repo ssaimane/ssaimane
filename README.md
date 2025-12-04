@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　　　　　　　　[guns.lol](https://guns.lol/dkj)　﹒ 　[ata](https://jpeg.atabook.org)　﹒ 　[strawpage](https://czxx.straw.page)
+　　　　　　　　　　　　　　　　　　　　　　　　[guns.lol](https://guns.lol/dkj)　﹒ 　[ata](https://3000.atabook.org)　﹒ 　[strawpage](https://sucesso.straw.page)
 
 
 　　<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=3166c5zzqf73uckxfe3o3ivw4lki">
